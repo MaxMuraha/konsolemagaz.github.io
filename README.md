@@ -1,0 +1,1 @@
+# konsolemagaz.github.io
